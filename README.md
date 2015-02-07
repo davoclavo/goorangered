@@ -1,1 +1,1 @@
-[GO HERE](http//davoclavo.co/goorangered)
+[GO HERE](http://davo.io/goorangered)
